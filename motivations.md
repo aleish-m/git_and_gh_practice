@@ -1,0 +1,1 @@
+My main motivation to change my career is the ability to work remotely on something that I am interested in with a lot of room for continued personal growth and the ability to combine my creative and technical inclinations and skills. 
